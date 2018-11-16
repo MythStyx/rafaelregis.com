@@ -1,2 +1,0 @@
-# rafaelregis.com
-rafaelregis.com
